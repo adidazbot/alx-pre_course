@@ -1,1 +1,1 @@
-thank you emperor
+thank you emperor, we must succeed!
